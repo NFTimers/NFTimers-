@@ -1,0 +1,2 @@
+# NFTimers-
+New brand in NFT shopping! In life it was impossible to buy one thing - this is TIME! And now you have an incredible chance! Buy - TIME! NFTimers have created a new time! 8 days in a week, 38 hours in a day, 61 minutes in an hour, 61 seconds in a minute! In addition to precious time, you get nft with a life history and therefore their value is ×2! The entire collection is created by hand, and therefore the quantity is limited, so it will be very difficult to collect a story! PS: NFTimers is not just NFT, it's a new story!
